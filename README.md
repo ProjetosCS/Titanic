@@ -10,5 +10,5 @@ Agradeço a Deus! Meu marido por me incentivar. A empresa em que trabalho, meu g
 Conclusão.
 
 De acordo com as evidências encontradas nessa analise com relação aos sobreviventes;
-Notou-se que o percentual maior de sobreviventes são mulheres e crianças. 
+Notou-se que o percentual maior de sobreviventes são mulheres. 
 E que o maior número de sobreviventes encontram-se na primeira classe.
